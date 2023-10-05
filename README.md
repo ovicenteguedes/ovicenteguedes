@@ -9,5 +9,5 @@
       A figura de Herberto Helder forma-se de 3 elementos: era um homem do mar, um místico e um solitário, criatura da ilha da Madeira, com sal na sensibilidade humana,
       e uma elevação espiritual deve ter a bossa da magia.
 
-- 💞️ Tirante o amor à palavra e ao mistério, nada o atrai para nada, metido sempre na (…)
+- 💞️ Tirando o amor à palavra e ao mistério, nada o atrai para nada, metido sempre na (…)
 - 📫 Queres ajudar ou relatar? Fica atento ...
